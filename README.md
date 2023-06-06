@@ -1,1 +1,1 @@
-My first readme
+i wanna earm money
